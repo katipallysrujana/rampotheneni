@@ -17,4 +17,4 @@ Ram Pothineni is an Indian actor who primarily works in Telugu films. Known for 
 2.Dancing
 </pre>
 <center><h2>"Your on-screen charisma lights up our hearts and souls!"
-# rampotheneni
+
